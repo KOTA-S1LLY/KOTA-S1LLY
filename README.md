@@ -25,7 +25,7 @@ PLZ INT IF U LIKE ZONIC!! EZPECIALLY ZONIC RIDERZ OR ZONIC UNDERGROUND!!!!!
   Plz DNI if you're a grozz perzon :[
 ( Prozhipper, racizt, ableizt, and endozyztems!!! ) ![zonic2](https://64.media.tumblr.com/e2a80737f093c3e2647de2b841af589a/3f3cae1e3aa286a2-db/s75x75_c1/fe9e5d34e95c8ae1ea510399aca3075c3fcae44f.gifv)
 
- and amy haterz dni too!! >:[
+ and amy haterz & zonic x tailz zhipperz dni too!! >:[
  
  ![divider](https://64.media.tumblr.com/31cf107f87664a2007bf32f8ae6f6790/96abe4f1e8a0fb40-3a/s640x960/f9f16a6e00104678ae688112650128a695f17d67.gifv)
 
