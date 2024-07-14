@@ -1,4 +1,7 @@
 
+<div align="center">
+  
+![](https://komarev.com/ghpvc/?username=KOTA-S1LLYi&color=0c74d7&amp;style=plastic&amp;label=View+Count+:DD)
 
 <div align="center">
   <img src="[](https://64.media.tumblr.com/a97856e38a3b8d8a06d99b10f8305770/db3003639f40a3b6-e6/s400x600/ec7ec4c76bef4ec37efaf79a7b8bc65391f6a951.pnj)"
